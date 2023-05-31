@@ -1,1 +1,1 @@
-# FIT_2_Project_S23
+# My crush, RoChe's class final Project of FIT 2, for Semester Spring 2023 (May 31, 2023)
